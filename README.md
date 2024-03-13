@@ -11,3 +11,5 @@ In the future it will
 
 THANKS FOR DOWNLOADING...
 ___GOD BLESS
+
+DISCORD=https://discord.gg/Jg2hqbGYcu ----sence youtube does not let me
